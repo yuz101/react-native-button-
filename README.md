@@ -1,1 +1,1 @@
-This course is tough, but you will benefit a lot from it.
+http://g.recordit.co/5pNf15WVM3.gif
